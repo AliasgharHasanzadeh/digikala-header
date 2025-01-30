@@ -1,5 +1,5 @@
 ![1](https://github.com/user-attachments/assets/e5f10b92-b6d7-433a-a180-edb22fe55cd0)
-![Screenshot 2025-01-30 205401](https://github.com/user-attachments/assets/bed2385f-fe53-486a-a324-ae7500685340)
+![2](https://github.com/user-attachments/assets/b903e1b7-7c61-422f-ade8-96b8ef9c8e0e)
 ![3](https://github.com/user-attachments/assets/0973d5c8-fa45-4a0d-ab6b-9a02712cd710)
 
 # Digikala header
